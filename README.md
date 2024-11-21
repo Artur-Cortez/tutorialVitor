@@ -1,2 +1,2 @@
 # tutorialVitor
-Ensinando vitor a usar o github gnomos termonucleares taticos
+Ensinando vitor a usar o github nossa titia que maneiro
